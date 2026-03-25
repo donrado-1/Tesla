@@ -24,3 +24,13 @@ Lets get ready for takeoff!
 
 EXCLUSIVE: Robotaxi Math: When Tesla Kills Uber | Cern Basher
 https://www.youtube.com/watch?v=dTOuPSmKXJc&t=1594s
+
+-------
+My Quote
+-------
+
+"AI separtes money from meaning"
+
+I deleted my X account where I documented that it was never shown on the internet before I claimed this quote, so I'm putting it here as a backup. I prefer my life without social media accounts, prefer the privacy. And hell, if Brad Bitt doesn't need social media why should I? XD
+
+
